@@ -1,7 +1,7 @@
-### 🌷𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑🌷
+### 🌷꧁༒★ཌﮩ٨ـﮩﮩ٨ـ ❤️ﮩ٨ـﮩﮩ٨ـ❥ DEVIL❤️ﮩ٨ـﮩﮩ٨ـﮩ٨★༒꧂🌷
 
 <!--
-**itzshukla/itzshukla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**꧁༒★ཌdͥevͣiͫlད★༒꧂/꧁༒★ཌdͥevͣiͫlད★༒꧂** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
 <p align="center">
@@ -9,7 +9,7 @@
  -->    <img align="middle" src="https://profile-counter.glitch.me/itszshivam/count.svg" />
 </p>
 
-<h1 align="center"><b>⚡️𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑 𝐒𝐏𝐀𝐌⚡️</b></h1>
+<h1 align="center"><b>⚡️DEVIL VIKRAM⚡️</b></h1>
 
 <h4 align="center">⚡️𝐓𝐇𝐄 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒⚡️</h4>
 
